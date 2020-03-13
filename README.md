@@ -1,7 +1,2 @@
 # hello-world
-Bad boys bad boys!
-What you gonna do,
-What you gonna do,
-What you gonna do,
-when we come for you?
-Bad boys!
+He faced the galloping hoards why Prince Ali ba ba ba!
